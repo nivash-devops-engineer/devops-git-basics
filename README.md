@@ -1,0 +1,1 @@
+I am Nivash from cuddalore disrict -Thozhuthur i have completed my schooling in Sri Ramakrishna Matric higher secondary school perambalur, I have completed my bachelor's in Automobile Engineering in Anna university Tiruchirapalli now i am currently pursuing Devops with AWS course in Error Makes Clever.
